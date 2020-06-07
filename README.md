@@ -13,7 +13,8 @@ Người có hai số 1 (11) là người may mắn nhất trong cả nhóm, b�
 
 Người có 11 thường có khả năng nhìn nhận các vấn đề hay các cuộc tranh luận, tranh cãi theo cả hai mặt đối lập, và vì vậy, họ hoàn toàn có khả năng đổi hướng giữa chừng nếu trong một cuộc thảo luận, họ cảm thấy quả thật hướng đối nghịch thực sự mang lại giá trị lớn lao hơn. Điều này khiến cho họ không bị sa vào bảo thủ khư khư giữ ý kiến mình khiến tầm hiểu biết bị giới hạn một chiều, mà cũng không bị ‘chấp’ với những điều mình cho là ‘lỗi’, là ‘sai’ ở người, dễ tha thứ cho người. Điều này tạo cho họ điều kiện lĩnh hội được nhiều kiến thức rộng lớn hơn, khả năng thấu hiểu lòng người cũng sâu hơn. Hệ quả là: người có 11 thường dễ có cuộc sống cân bằng, an vui, nói vui là “Ok I’m fine”, dẫu cho cuộc sống có thế nào.
 ```
---> Cái này khá đúng Trung thường khó chịu khi những người lớn tuổi hơn mình nhưng nhìn nhận sai hoặc chưa rõ ràng một vấn đề nào đó.
+--> Cái này khá đúng Trung thường khó chịu khi những người lớn tuổi hơn mình,
+nhưng nhìn nhận sai hoặc chưa rõ ràng một vấn đề nào đó.
 ``` 
 
 Về điều này, bạn QH có hai điều cần chia sẻ kỹ hơn chút:
@@ -29,7 +30,11 @@ Về điều này, bạn QH có hai điều cần chia sẻ kỹ hơn chút:
 Trở lại với những đặc điểm nổi bật của hai số 1: Chính vì những yếu tố tích cực và dung hòa, cân bằng này mà người có hai số 1 dễ tìm thấy trong các chính trị gia thành công hoặc những người của công chúng, người nổi tiếng. Yếu tố hai số 1 làm nổi bật khả năng nhận thức, thấu hiểu con người, cũng như khả năng diễn đạt bản thân mình, giảm thiểu khả năng bị hiểu lầm hoặc hiểu lầm người khác, và khả năng nhìn nhận các vấn đề một cách đa chiều, không phiến diện.
 
 ```
---> Số 11 là trống mệnh mông (Số 11 nằm trên ‘ốc đảo cô đơn’), nên người mang ngày sinh này không tránh khỏi cảm giác cô độc. May mà người này có hai số 11, có cặp có đôi, vừa đủ dùng. Nên cho dẫu chênh chao cho dẫu dễ nhạy cảm gì đó, người này vẫn sống ổn, dù có thế nào. (Copy của một người gần giống ngày sinh)
+--> Số 11 là trống mệnh mông (Số 11 nằm trên ‘ốc đảo cô đơn’), 
+nên người mang ngày sinh này không tránh khỏi cảm giác cô độc. 
+May mà người này có hai số 11, có cặp có đôi, vừa đủ dùng. 
+Nên cho dẫu chênh chao cho dẫu dễ nhạy cảm gì đó, người này vẫn sống ổn, dù có thế nào.
+(Copy của một người gần giống ngày sinh)
 ```
 
 
@@ -38,19 +43,22 @@ Trở lại với những đặc điểm nổi bật của hai số 1: Chính v�
 Tùy thuộc vào Con số chủ đạo và nhiều yếu tố khác nữa trong ngày sinh của mỗi người, mà người có hai con 6 trong biểu đồ ngày sinh chịu một trong hai khả năng: hoặc là một người tánh khá ‘chướng’, hoặc là một người chịu khuyết tật hoặc bệnh tật về một mặt nào đó. Và cũng tùy thuộc vào các yếu tố môi trường sống, đặc biệt là ảnh hưởng của cha mẹ lên con cái trong giai đoạn đầu đời, mà mỗi cá nhân của trường hợp này có thể vượt qua điều này thế nào.
 
 ```
---> Cái này theo quan sát của T thì ai cũng có nhé. Chỉ là họ giấu giỏi đến đâu thôi.
+--> Cái này theo quan sát của T thì ai cũng có nhé.
+Chỉ là họ giấu giỏi đến đâu thôi.
 ```
 
 Với người có ý thức kém hơn, những khía cạnh tiêu cực thể hiện khá rõ nét, như sự lo lắng, bồn chồn, stress, dễ nóng giận, đặc biệt là ở nhà hay ở chỗ làm. Những người thân những người thương xung quanh họ cảm nhận sự tiêu cực này rõ nhất, và bởi vì tất cả đều liên quan với nhau, điều này tạo ra môi trường khá căng thẳng thần kinh, thậm chí bệnh tật. Để hóa giải điều này, tốt nhất là hướng mối quan tâm của họ vượt ra ngoài những ngưỡng giới hạn trong gia đình để vươn tới những lĩnh vực sáng tạo đa dạng hơn, bất kể là dạng gì, đều tốt cả.
 
 ```
---> Đôi lúc Trung cũng thể hiện trang thái tiêu cực ra ngoài. Những càng lớn tuổi cái những biểu hiện ấy lại càng ít đi. Tức là họ chai lỳ về cảm xúc. 
+--> Đôi lúc Trung cũng thể hiện trang thái tiêu cực ra ngoài. 
+Những càng lớn tuổi cái những biểu hiện ấy lại càng ít đi. 
+Tức là họ chai lỳ về cảm xúc. 
 ```
 
 Nghề nghiệp của những người có hai số 6 trong ngày sinh nên theo những ngành chú trọng tính sáng tạo, được gợi cảm hứng bởi sự tự tin và thấu hiểu sâu về một vấn đề. Họ cần được hướng dẫn nhẹ nhàng trong mọi trường hợp, không bao giờ được hối thúc hay đe dọa họ. Với họ, lúc nào cũng cần những lời ăn tiếng nói nhẹ nhàng, đầy yêu thương và thấu hiểu, có chức năng giống như dạng ‘dầu cù là’ tinh thần xoa dịu nhẹ hệ thống dây thần kinh rất nhạy của họ.
 
 ```
---> Đang xem xét mà Trung thấy cũng có lý, vì T hồi nhỏ đến lớn khá độc lập, về cả tư tưởng và các vấn đề trong cuộc sống.
+--> Đáng xem xét, vì T hồi nhỏ đến lớn khá độc lập, về cả tư tưởng và các vấn đề trong cuộc sống.
 ```
 
 Những người này cần thư giãn nghỉ ngơi nhiều nhất, bởi họ tiêu hao rất nhiều năng lượng thần kinh vào những hoạt động sáng tạo hay hoạt động thường ngày. Họ cần tập tĩnh tâm, hoặc thiền càng tốt, hàng ngày trước khi đi ngủ, để đảm bảo giấc ngủ của họ thực sự được thư giãn. Họ cũng cần những giấc ngủ trưa mỗi khi có thể, điều này thì dĩ nhiên tốt cho mọi người rồi, nhưng với những người có hai số 6, điều này là đặc biệt cần thiết.
@@ -60,8 +68,13 @@ Những người này cần thư giãn nghỉ ngơi nhiều nhất, bởi họ t
 ```
 
 ```
-Hai số 66: Người rất… khó tính, khó chiều (ahaha), và dễ bị nổi nóng. Đối xử với người hai số 66 phải luôn mềm nhẹ, người thích ‘ăn mềm không ăn cứng’, nha. (Copy của một người khá giống ngày sinh)
---> Cái này thì không đúng cho lắm. Trung không có khó tính, dễ nổi nóng thì càng không. Mọi người đều thích nhẹ nhàng chẳng ai thích thô thiển cả.
+Hai số 66: Người rất… khó tính, khó chiều (ahaha), và dễ bị nổi nóng.
+Đối xử với người hai số 66 phải luôn mềm nhẹ, người thích ‘ăn mềm không ăn cứng’, nha.
+(Copy của một người khá giống ngày sinh)
+
+--> Cái này thì không đúng cho lắm. 
+Trung không có khó tính, dễ nổi nóng thì càng không. 
+Mọi người đều thích nhẹ nhàng chẳng ai thích thô thiển, gắt gỏng cả.
 ```
 
 ### HAI CON 9 (99):
@@ -69,7 +82,13 @@ Hai số 66: Người rất… khó tính, khó chiều (ahaha), và dễ bị n
 Mức lý tưởng hóa cao độ và nhiệt tâm theo đuổi lý tưởng được tăng cao, đi kèm với những suy nghĩ cực kỳ nghiêm túc, đó là những khái niệm để mô tả những người có hai số 9 trong biểu đồ ngày sinh. Họ thường bày tỏ sự hoàn hảo lý tưởng đáng ghen tị, nhưng sau đó thường quá lý tưởng để trở thành thực tế. Họ cần cẩn thận giữ sự cân bằng giữa tính thực tế và lý tưởng.
 
 ```
---> E hèm, ừa khá đúng Trung có rất nhiều ước mong. Và đang từng bước thực hiện. Nhưng mà nếu không có ước mong đó thì Trung đâu có vừa học vừa làm full time cho một công ty outsource của Nhật từ cuối năm 4. Ngẩm lại thì Trung nhiều khi cực đoan trong một số vấn đề. Ví dụ như thực 3 ngày 3 đêm để làm đồ án mà gần như rất ít ăn. Hay chạy xe quá nhanh để có được cảm giác phấn khích.
+--> E hèm, ừa khá đúng Trung có rất nhiều ước mong. 
+Và đang từng bước thực hiện.
+Nhưng mà nếu không có ước mong đó thì Trung đâu có vừa học vừa làm full time 
+cho một công ty outsource của Nhật từ cuối năm 4. 
+Ngẩm lại thì Trung nhiều khi cực đoan trong một số vấn đề. 
+Ví dụ như thực 3 ngày 3 đêm để làm đồ án mà gần như rất ít ăn. 
+Hay chạy xe quá nhanh để có được cảm giác phấn khích.
 ```
 
 Nếu muốn tìm thấy hạnh phúc, an lạc trong cuộc sống, những người này cần tránh tối đa khuynh hướng hay phê bình người khác có khả năng yếu lý tưởng hơn mình, hoặc đã có thì ráng vượt qua. Tuy vậy những người này thường là những người có tư duy sâu sắc, làm việc với tất cả sự nhiệt tâm, và họ ước mong được hữu ích khi giúp người. Chỉ cần ráng nhớ diễn đạt ý của mình cho rõ ràng, và tránh lòng tốt mình bị coi như đương nhiên nhé.
@@ -79,9 +98,14 @@ Nếu muốn tìm thấy hạnh phúc, an lạc trong cuộc sống, những ng�
 ```
 
 ```
-Hai số 99: Mình có nhắc lại vài lần rồi, chỉ một số 9 duy nhất là hoàn hảo. Đủ trách nhiệm, đủ ước mơ, đủ lý tưởng. Nhân đôi số 9, mọi cái bị nhân cao lên gấp hai, khiến cho người này dễ bị buồn vì trách nhiệm quá cao và đòi hỏi trách nhiệm từ người khác cũng cao. Ước mơ lớn lao, lý tưởng quá lớn khiến khó vươn tới => dễ bị buồn (Copy từ một bạn có ngày sinh gần giống)
+Hai số 99: Mình có nhắc lại vài lần rồi, chỉ một số 9 duy nhất là hoàn hảo. 
+Đủ trách nhiệm, đủ ước mơ, đủ lý tưởng. 
+Nhân đôi số 9, mọi cái bị nhân cao lên gấp hai, 
+khiến cho người này dễ bị buồn vì trách nhiệm quá cao và đòi hỏi trách nhiệm từ người khác cũng cao. 
+Ước mơ lớn lao, lý tưởng quá lớn khiến khó vươn tới 
+=> dễ bị buồn (Copy từ một bạn có ngày sinh gần giống)
 
---> Sao lại dễ buồn nhỉ. Nên xem xét mình làm sai ở đâu chứ. Chứ cái gì cũng buồn thì sẽ chẳng làm được gì cả.
+--> Sao lại dễ buồn nhỉ. Nên xem xét mình làm sai ở đâu chứ. Chứ cái gì cũng buồn thì sẽ chẳng làm được gì cả. (Quan điểm cá nhân)
 ```
 
 ### MŨI TRÊN TRỐNG 3-5-7
@@ -107,7 +131,8 @@ Những người có Mũi tên trống 3-5-7 thoạt có vẻ… khá đa nghi, 
 🍃 Nếu vì một lý do gì đó mà những người này cảm thấy thất vọng với một tôn giáo, tín ngưỡng hay một nền khoa học truyền thống, họ dễ phản ứng bằng cách tỏ ra bất cần. Và điều này lại dẫn đến sự chán nản nhiều hơn nữa với cuộc đời này. Vì thế, để đối mặt với khả năng này, một người biết mình có Mũi tên trống 3-5-7 tốt nhất nên tự phát triển cho mình một mục đích sống cụ thể, nuôi dưỡng lòng thương yêu con người, thương yêu muôn loài một cách mạnh mẽ hơn, và nâng cao mọi mặt biểu hiện của mình thông qua các hình thức nghệ thuật mà mình có ít nhiều khả năng, như viết lách, vẽ, âm nhạc, vân vân.
 
 ```
---> Lỡ Trung mà làm kỹ sư hạt nhân thì thế giới này tàn rồi. Trung khá thích viết. Viết đơn giản chỉ là để giải tỏa.
+--> Lỡ Trung mà làm kỹ sư hạt nhân thì thế giới này tàn rồi. 
+Trung khá thích viết. Viết đơn giản chỉ là để giải tỏa.
 ```
 
 #### ‘PHÁ THẾ’ MŨI TÊN TRỐNG 3-5-7:
@@ -120,7 +145,8 @@ Thực tế có khi bố mẹ bạn đã vô thức ‘phá thế trống’ nà
 - P, G, Y tương tứng với số 7
 
 ```
---> Có sẳn trong tên luôn rồi (Chữ U - 3, N - 5, G - 7). Biệt danh ở nhà là "Đen" có chứ E - 5.
+--> Có sẳn trong tên luôn rồi (Chữ U - 3, N - 5, G - 7). 
+Biệt danh ở nhà là "Đen" có chứ E - 5.
 ```
 
 Thì người đó đã hoàn toàn ‘điền’ được một số con số 3, 5, 7 ‘ảo’ vào biểu đồ của mình rồi! Tuy vậy, cũng cần thận trọng, khi nếu tên riêng này mà… lại làm lố, quá nhiều số 3, số 5 hay số 7 lặp lại trong cùng một cái tên, cũng sẽ mang lại nhiều điều ‘dư quá hóa xấu’. Cái này thì tới bài TÊN RIÊNG mình sẽ giải thích chi tiết cho nhà mình nghe.
@@ -160,9 +186,11 @@ Việc học này không nhất thiết bạn phải đi đăng ký học chính
 ### MŨI TRÊN TRỐNG 2-5-8
 Mũi tên Dễ nhạy cảm, dễ tổn thương
 
-```
---> Có thể vì ngoại hình thư sinh nên mọi người dễ tưởng rằng Trung sẽ rất dễ tổn thương. Nhưng Trung không như thế. Nhạy cảm thì có đấy. Trung có thể rớt nước mặt về một bô phim về gia đình hay là tìm được những câu nói hay làm phương châm sống.
-```
+`
+--> Có thể vì ngoại hình thư sinh nên mọi người dễ tưởng rằng Trung sẽ rất dễ tổn thương. 
+Nhưng Trung không như thế. Nhạy cảm thì có đấy. 
+Trung có thể rớt nước mặt về một bô phim về gia đình hay là tìm được những câu nói hay làm phương châm sống.
+`
 
 ### Con số chủ đọa là số 5
  
