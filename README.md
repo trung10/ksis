@@ -12,6 +12,7 @@
 Người có hai số 1 (11) là người may mắn nhất trong cả nhóm, bởi sự cân bằng trời cho trong việc diễn đạt nội tâm. Đây là một đặc điểm đầy giá trị trong biểu đồ ngày sinh mà bạn nên sử dụng một cách khôn ngoan – không bao giờ lạm dụng nó cho mục đích áp đảo người khác. (Luôn nhớ ý thức tránh bực bội hay coi thường những người không được may mắn (có 11 giống bạn), đặc biệt là nếu bạn đang yêu hoặc kết hôn với một người không được có 11).
 
 Người có 11 thường có khả năng nhìn nhận các vấn đề hay các cuộc tranh luận, tranh cãi theo cả hai mặt đối lập, và vì vậy, họ hoàn toàn có khả năng đổi hướng giữa chừng nếu trong một cuộc thảo luận, họ cảm thấy quả thật hướng đối nghịch thực sự mang lại giá trị lớn lao hơn. Điều này khiến cho họ không bị sa vào bảo thủ khư khư giữ ý kiến mình khiến tầm hiểu biết bị giới hạn một chiều, mà cũng không bị ‘chấp’ với những điều mình cho là ‘lỗi’, là ‘sai’ ở người, dễ tha thứ cho người. Điều này tạo cho họ điều kiện lĩnh hội được nhiều kiến thức rộng lớn hơn, khả năng thấu hiểu lòng người cũng sâu hơn. Hệ quả là: người có 11 thường dễ có cuộc sống cân bằng, an vui, nói vui là “Ok I’m fine”, dẫu cho cuộc sống có thế nào.
+
 `
 --> Cái này khá đúng Trung thường khó chịu khi những người lớn tuổi hơn mình, nhưng nhìn nhận sai hoặc chưa rõ ràng một vấn đề nào đó.
 ` 
