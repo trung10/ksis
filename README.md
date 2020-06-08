@@ -83,8 +83,9 @@ Nếu muốn tìm thấy hạnh phúc, an lạc trong cuộc sống, những ng�
 --> Cái này lặp lại ý trong con số 11.
 `
 
-
+`
 Hai số 99: Mình có nhắc lại vài lần rồi, chỉ một số 9 duy nhất là hoàn hảo. Đủ trách nhiệm, đủ ước mơ, đủ lý tưởng. Nhân đôi số 9, mọi cái bị nhân cao lên gấp hai, khiến cho người này dễ bị buồn vì trách nhiệm quá cao và đòi hỏi trách nhiệm từ người khác cũng cao. Ước mơ lớn lao, lý tưởng quá lớn khiến khó vươn tới => dễ bị buồn (Copy từ một bạn có ngày sinh gần giống)
+`
 
 `
 --> Sao lại dễ buồn nhỉ. Nên xem xét mình làm sai ở đâu chứ. Chứ cái gì cũng buồn thì sẽ chẳng làm được gì cả. (Quan điểm cá nhân)
