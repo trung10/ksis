@@ -123,8 +123,7 @@ Thực tế có khi bố mẹ bạn đã vô thức ‘phá thế trống’ nà
 - P, G, Y tương tứng với số 7
 
 `
---> Có sẳn trong tên luôn rồi (Chữ U - 3, N - 5, G - 7). 
-Biệt danh ở nhà là "Đen" có chứ E - 5.
+--> Có sẳn trong tên luôn rồi (Chữ U - 3, N - 5, G - 7). Biệt danh ở nhà là "Đen" có chứ E - 5.
 `
 
 Thì người đó đã hoàn toàn ‘điền’ được một số con số 3, 5, 7 ‘ảo’ vào biểu đồ của mình rồi! Tuy vậy, cũng cần thận trọng, khi nếu tên riêng này mà… lại làm lố, quá nhiều số 3, số 5 hay số 7 lặp lại trong cùng một cái tên, cũng sẽ mang lại nhiều điều ‘dư quá hóa xấu’. Cái này thì tới bài TÊN RIÊNG mình sẽ giải thích chi tiết cho nhà mình nghe.
@@ -165,9 +164,7 @@ Việc học này không nhất thiết bạn phải đi đăng ký học chính
 Mũi tên Dễ nhạy cảm, dễ tổn thương
 
 `
---> Có thể vì ngoại hình thư sinh nên mọi người dễ tưởng rằng Trung sẽ rất dễ tổn thương. 
-Nhưng Trung không như thế. Nhạy cảm thì có đấy. 
-Trung có thể rớt nước mặt về một bô phim về gia đình hay là tìm được những câu nói hay làm phương châm sống.
+--> Có thể vì ngoại hình thư sinh nên mọi người dễ tưởng rằng Trung sẽ rất dễ tổn thương. Nhưng Trung không như thế. Nhạy cảm thì có đấy. Trung có thể rớt nước mặt về một bô phim về gia đình hay là tìm được những câu nói hay làm phương châm sống.
 `
 
 ### Con số chủ đọa là số 5
@@ -176,9 +173,3 @@ Trung có thể rớt nước mặt về một bô phim về gia đình hay là 
 
 Bản chất của người Số 5 là đầy yêu thương và yêu tự do, có óc nghệ thuật, máu lãng du, hơi 'moody' (nghĩa là hay 'mưa nắng', hihi), dao động từ tâm trạng rất vui vẻ khi được tự do sang ủ dột ra mặt khi cảm thấy bị 'đè ép'.
 Họ là những người đầy cảm xúc.
-
-`
---> Nói chung chung quá. Một đời người đều có những cảm xúc này, chỉ là ở giai đoạn nào đó họ mới nhận thấy nó.
-`
-
-# Có một câu hỏi: vì sao con người cần đến bói toán vậy?
