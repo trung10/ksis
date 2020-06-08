@@ -96,7 +96,7 @@ Hai số 99: Mình có nhắc lại vài lần rồi, chỉ một số 9 duy nh�
 Những người có Mũi tên trống 3-5-7 thoạt có vẻ… khá đa nghi, thường hay đặt câu hỏi “Tại sao” cho hầu như mọi vấn đề của cuộc sống. Điều này làm cho cuộc sống của họ… khá mệt, thậm chí có vẻ hơi tiêu cực đầu tiên. Tuy nhiên, sau khi đã cất công tìm hiểu cho tới tận cùng căn nguyên vấn đề, điều gì làm cho họ tin được, họ sẽ chấp nhận một cách rõ ràng; bằng ngược lại, cái gì họ đã không đồng tình với quan niệm đó, họ dẹp luôn.
 
 `
---> Giống quá rồi còn gì. "Tại sao" trong vấn đề nào đó tức là mình còn tò mó về nó, còn muốn tìm hiểu và biết thêm. Anh Dương Ngọc Thái (kỹ sư google) từng định nghĩa "đam mê là còn tò mò về lĩnh vực nào đó".
+--> Giống quá rồi còn gì. "Tại sao" trong vấn đề nào đó tức là mình còn tò mó về nó, còn muốn tìm hiểu và biết thêm. Anh Dương Ngọc Thái (kỹ sư google) từng định nghĩa "đam mê là còn tò mò".
 `
 
 🍃 Bản chất của những người thuộc nhóm này là có máu tìm hiểu, lục lọi, nên có rất nhiều nhà nghiên cứu khoa học có Mũi tên đặc thù này. Nhìn chung, những người này sẽ bắt đầu nghiền ngẫm, tìm tòi trên cái nền căn cơ những điều chuẩn mà họ đang theo đuổi, và thường bỏ qua cơ hội đào sâu những khía cạnh vi tế hơn của đời sống con người thông qua mặt triết lý sống, hoặc có nhìn ra, cũng đặt vào vị trí thứ yếu.
