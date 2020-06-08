@@ -61,7 +61,9 @@ Những người này cần thư giãn nghỉ ngơi nhiều nhất, bởi họ t
 
 `
 Hai số 66: Người rất… khó tính, khó chiều (ahaha), và dễ bị nổi nóng. Đối xử với người hai số 66 phải luôn mềm nhẹ, người thích ‘ăn mềm không ăn cứng’, nha. (Copy của một người khá giống ngày sinh)
+`
 
+`
 --> Cái này thì không đúng cho lắm. 
 Trung không có khó tính, dễ nổi nóng thì càng không. 
 Mọi người đều thích nhẹ nhàng chẳng ai thích thô thiển, gắt gỏng cả.
@@ -78,7 +80,7 @@ Mức lý tưởng hóa cao độ và nhiệt tâm theo đuổi lý tưởng đ�
 Nếu muốn tìm thấy hạnh phúc, an lạc trong cuộc sống, những người này cần tránh tối đa khuynh hướng hay phê bình người khác có khả năng yếu lý tưởng hơn mình, hoặc đã có thì ráng vượt qua. Tuy vậy những người này thường là những người có tư duy sâu sắc, làm việc với tất cả sự nhiệt tâm, và họ ước mong được hữu ích khi giúp người. Chỉ cần ráng nhớ diễn đạt ý của mình cho rõ ràng, và tránh lòng tốt mình bị coi như đương nhiên nhé.
 
 `
---> Cái này lặp lại ý trong con **số 11**.
+--> Cái này lặp lại ý trong con số 11.
 `
 
 
@@ -93,13 +95,13 @@ Hai số 99: Mình có nhắc lại vài lần rồi, chỉ một số 9 duy nh�
 Những người có Mũi tên trống 3-5-7 thoạt có vẻ… khá đa nghi, thường hay đặt câu hỏi “Tại sao” cho hầu như mọi vấn đề của cuộc sống. Điều này làm cho cuộc sống của họ… khá mệt, thậm chí có vẻ hơi tiêu cực đầu tiên. Tuy nhiên, sau khi đã cất công tìm hiểu cho tới tận cùng căn nguyên vấn đề, điều gì làm cho họ tin được, họ sẽ chấp nhận một cách rõ ràng; bằng ngược lại, cái gì họ đã không đồng tình với quan niệm đó, họ dẹp luôn.
 
 `
---> Giống quá rồi còn gì. "Tại sao" trong vấn đề nào đó tức là mình còn tò mó về nó, còn muốn tìm hiểu và biết thêm về nó. Anh Dương Ngọc Thái (kỹ sư google) từng định nghĩa "đam mê là tò mò về những lĩnh vực nào đó".
+--> Giống quá rồi còn gì. "Tại sao" trong vấn đề nào đó tức là mình còn tò mó về nó, còn muốn tìm hiểu và biết thêm. Anh Dương Ngọc Thái (kỹ sư google) từng định nghĩa "đam mê là còn tò mò về lĩnh vực nào đó".
 `
 
 🍃 Bản chất của những người thuộc nhóm này là có máu tìm hiểu, lục lọi, nên có rất nhiều nhà nghiên cứu khoa học có Mũi tên đặc thù này. Nhìn chung, những người này sẽ bắt đầu nghiền ngẫm, tìm tòi trên cái nền căn cơ những điều chuẩn mà họ đang theo đuổi, và thường bỏ qua cơ hội đào sâu những khía cạnh vi tế hơn của đời sống con người thông qua mặt triết lý sống, hoặc có nhìn ra, cũng đặt vào vị trí thứ yếu.
 
 `
---> Chứa làm nhà khoa học nên chưa biết! 
+--> Chưa làm nhà khoa học nên chưa biết! 
 `
 
 🍃 Từ quá nhiều điều phát hiện ra làm họ cảm thấy hồ nghi về cuộc sống, họ trở nên khá nóng nảy, dễ phản ứng. Những người này nếu không ý thức tự điều chỉnh sẽ trở thành nạn nhân của chứng hay lo lắng thái quá, kèm theo thường bị nhức đầu và một số các vấn đề tâm lý khác. Lo lắng, bồn chồn có thể đưa đến những tai nạn thường ảnh hưởng đến vùng đầu. Cho nên, với những người có Mũi tên trống 3-5-7, điều đặc biệt cần thiết là họ cần được phát triển một cái nhìn, cách hiểu sâu hơn về triết lý sống ở đời, những điều không chỉ được cảm nhận bởi năm giác quan vật lý thông thường.
